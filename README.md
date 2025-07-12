@@ -70,6 +70,14 @@ https://xn--bggb-rp5imh.v.nxog.top/m/111.php?ou=公众号欧歌app&mz=index&jar=
 
 具体操作视频可在 https://b23.tv/4J5nLct b站观看
 
+## 下载地址
+UC网盘
+https://drive.uc.cn/s/b437317346a14
+百度网盘
+https://pan.baidu.com/s/11RcWwauUQiWt_Ids_zs5Qw?pwd=a6g7
+夸克网盘
+https://pan.quark.cn/s/61d324167c07
+
 <img src="https://fs-im-kefu.7moor-fs1.com/ly/4d2c3f00-7d4c-11e5-af15-41bf63ae4ea0/1752289832403/Screenshot_2025-02-05-16-52-31-748_com.hlyt.gamehlythz.yscsp.jpg" style="zoom:33%;" />
 
 <img src="https://fs-im-kefu.7moor-fs1.com/ly/4d2c3f00-7d4c-11e5-af15-41bf63ae4ea0/1752289832579/Screenshot_2025-07-12-11-09-26-014_com.hlyt.gamehlythz.yscsp.jpg" style="zoom:33%;" />
